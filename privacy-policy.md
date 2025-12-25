@@ -17,3 +17,4 @@ Caso haja alterações futuras que envolvam coleta de dados, esta Política de P
 Se tiver dúvidas, entre em contato pelo e-mail: davysouza1997@gmail.com
 
 Última atualização: 24/12/2025
+ 
